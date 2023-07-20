@@ -1,1 +1,0 @@
-# sisyad.github.io
